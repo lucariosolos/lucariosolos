@@ -5,6 +5,6 @@
 
 
 <div align="center">
-<sub> she/her
+<sub> she/her     ;          ilmgf
   
 <sub> i play overwatch, valorant and more!!! pls play with me...........
