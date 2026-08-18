@@ -1,6 +1,7 @@
 
 <div align="center">
-<img width="220" height="164" alt="signalis-ariane" src="https://github.com/user-attachments/assets/2ace1d0e-85f3-4854-b810-de6738bfc1af" />
+<img width="300" src="https://files.catbox.moe/bqowl3.png">
+</p>
 <div align="center">
 
 
@@ -14,4 +15,7 @@
 <sub> 𐔌 open to be friends and play games !! disc ➛ joeblaz3y . ۫ ·
   <div align="center">
 
-  <img width="220" height="124" alt="reze-chainsaw-man" src="https://github.com/user-attachments/assets/11606a8d-19b8-4210-b0a8-e0a712508509" />
+<div align="center">
+<img width="300" src="https://files.catbox.moe/9iwrjj.png">
+</p>
+
