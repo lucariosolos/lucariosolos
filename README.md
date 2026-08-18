@@ -9,7 +9,7 @@
 
 <sub> 𐔌 open to be friends and play games !! disc ➛ joeblaz3y . ۫ ·
 <div align="center">
-<img width="300" src="https://files.catbox.moe/v8q9jq.png">
+<img width="300" src="https://files.catbox.moe/cdunya.png">
 </p>
 
 
